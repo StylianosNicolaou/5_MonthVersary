@@ -43,6 +43,8 @@ I will always love you (more) and I will always protect you and our future famil
 
 You are the best thing that ever happened to me and I am so glad that I have the privilege to call you my girlfriend, and soon wife.
 
+Happy 5 months kyanks, cheers to MANY MANY MORE ❤️
+
 I love you agapi mou, zoi mou, kardia mou, moro mou ❤️
 
 Forever yours,
